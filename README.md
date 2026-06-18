@@ -887,3 +887,14 @@ https://drive.google.com/file/d/1nMYBaGr-1QI0ErbLODx-sHDt_K3Kt_Ex/view?usp=drive
 
 
 
+كفرات لوحات
+https://drive.google.com/file/d/14926WNW3wJWIp7qZMNZqUmW7PjZjkDMG/view?usp=drivesdk
+
+
+
+لكزس ٢٠٢٣
+
+
+https://drive.google.com/file/d/1sks-Ewv8sJRLM1blBA5Symhh0h0tOGwn/view?usp=drivesdk
+
+
